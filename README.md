@@ -1,2 +1,0 @@
-# yanci-imagenes
-Fotos
